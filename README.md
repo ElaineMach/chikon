@@ -1,2 +1,2 @@
 # chikon
-To each chikon and see where chikon goes 
+To eat chikon and see where chikon goes 
